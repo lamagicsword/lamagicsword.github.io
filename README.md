@@ -1,0 +1,1 @@
+# lamagicsword.github.io
